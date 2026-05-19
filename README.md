@@ -31,7 +31,13 @@ https://wanderlust-v8sc.onrender.com/listings
 
 <img width="1917" height="1026" alt="image" src="https://github.com/user-attachments/assets/5c193484-b0c6-49d7-a79c-acf0f4ff2ebc" />
 
+
+
+
 <img width="1917" height="1031" alt="image" src="https://github.com/user-attachments/assets/f1fc8982-965d-45c0-a985-f78de4d6caef" />
+
+
+
 
 <img width="1917" height="1032" alt="image" src="https://github.com/user-attachments/assets/d136d812-a86d-44ef-ba8f-e059ee221d1b" />
 
